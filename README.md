@@ -1,2 +1,2 @@
-An old Guy who has been building houses for 30 years has decided to learn how to build with code and blockchains.
-Looking forward to learning, growing and challenging myself with some new projects!
+My passion for crypto and desire to help others who are new to the space, have inspired me to learn how to build with code and blockchains.
+Looking forward to expanding my knowledge and skillset to motivate others to understand the possibilities of this new technology!
